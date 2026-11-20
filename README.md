@@ -12,6 +12,7 @@
 - 🎓 Étudiante en **L2 Sciences et Technologies** à l'**UPJV / INSSET** (Saint-Quentin)
 - 🏛️ **Présidente de l'ADESQ**, le BDE de l'INSSET
 - 🔧 Membre du **club électronique** de l'INSSET
+- 🍫 J'aime le **chocolat**
 
 ---
 
